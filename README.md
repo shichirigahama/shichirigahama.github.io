@@ -1,1 +1,3 @@
 # shichirigahama.github.io
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-9210097482705270"
+     crossorigin="anonymous"></script>
