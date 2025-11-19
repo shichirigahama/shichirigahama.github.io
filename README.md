@@ -1,0 +1,1 @@
+# shichirigahama.github.io
